@@ -1,1 +1,0 @@
-# African Queen Adventures proposal
